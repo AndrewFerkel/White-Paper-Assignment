@@ -1,4 +1,2 @@
-For my white paper, I will be demonstrating the horrendous conditions of inner city education to teachers and faculty in other areas. My goal will be to speak to members of successful schools and convince them to partner with the areas in need by illustrating statistics that show the startling flaws of urban education.
+For my white paper, I will be demonstrating the negative conditions of inner city education to teachers and faculty and how many of the issues stem from overcrowding and poor funding. My goal will be to speak to members of successful schools and convince them to partner with the areas in need by illustrating statistics that show the flaws of urban education. Towards the end, I will challenge my audience (urban and rural educators alike) to raise awareness for the plight of urban education, educate students about the wealth and academic benefits of restoring the nuclear family, and to build connections between successful and struggling schools.
 
-Call to Action: Partner with instructors in the cities and help them in their endeavors to teach students who are not interested in learning at all.
- 
